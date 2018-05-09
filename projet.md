@@ -1,11 +1,10 @@
-Nous avons opté pour ce sujet car nous sommes persuadés que la société est une partie essentielle de la vie de chaque personne, mais malgré tout cela les gens sont peu informés des détails des relations sociales. L'enquête que nous avons mené a montré que les élèves de notre école connaissent peu sur le sujet de consommation.    
-Le petit plan
-Eh bien, on commence.
+La société est une partie essentielle de la vie de chaque personne, mais malgré cela les gens sont peu informés des détails des relations sociales. 
+
 Qu'est ce que c'est que la société de consommation? C’est un ordre économique et social fondé sur la création et la stimulation d'un désir de profiter de biens et de services.
 (+) La transition vers la société de consommation constitue le progrès immense vue des avantages suivants: 
 1) Les relations fondées sur la consommation atténuent les différences entre les gens, les préjugés nationaux et religieuses. Les gens sont moins penchants au risque et à l'extrémisme. Effectivement, de nos jours les jeunes ont une opportunité de s’inscrire dans une université à l'étranger, d’y faire un stage ou d’y travailler. La discrimination raciale s’est diminué aussi. En général, les gens sont plus accueillants et bienveillants envers les étrangers. Donc, la société de consommation a fortement contribué à la diminution de la tension sociale.
 2) -К-
-(-Л-) Cependant, il ne faut jamais oublier que la crise et le progrès vont toujours main dans la main dans tous les domaines de notre vie. La société de consommation n’est pas une exception: il existe des aspects négatifs qui font partie intégrante de cet ordre social.
+Cependant, il ne faut jamais oublier que la crise et le progrès vont toujours main dans la main dans tous les domaines de notre vie. La société de consommation n’est pas une exception: il existe des aspects négatifs qui font partie intégrante de cet ordre social.
 D’abord, il existe un problème de la surconsommation c’est quand on achète des biens au delà de ses besoins. On achète pour acheter sans forcément utiliser le produit au final. On a tellement l’habitude d’avoir ce qu’on veut quand on veut, qu’il nous paraît normal de s’acheter quelque chose quand l’envie d’achat nous prend. 
 (-К-)
 2) Еnsuite, la surconsommation, à son tour, peut développer la dépendance et son type est peu importe, qu’il s’agisse d’une dépendance physique ou psychique. Le problème est qu’une personne commence à acheter juste parce qu’elle a le désir d’acheter. La publicité fait un grand impact sur le comportement de consommateur. Le roman de Frédéric Beigbeder “99 francs” nous montre que la publicité représente toujours le monde idéal. Le désir de s’approcher de cette réalité qui n’existe pas en fait pousse le consommateur a l’achat. 
